@@ -6,5 +6,4 @@ c+h yes
 
 [ata](https://paletteneka.atabook.org/)
 <br>
-[~ waaa kawaii |c+h|°] Im gonna make a Clark pony like goonjo
-<br> chris is mad this GUYSS GUYS.
+if you don't like me or hate you can hide its okay to hide you dont have to harassing me like grow up bru.
