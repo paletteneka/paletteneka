@@ -1,9 +1,8 @@
-if u copy my skin u're my ugly version and gross BYEEE.
-<br> [ponytown's](https://github.com/pt-hall-of-media) yarao yes thanks!! ILY 
-
+<p align="center">
+<img src="https://files.catbox.moe/r8yjls.png" alt="airihina" width="400">
 <br>
-c+h yes
+<br> " how do you think something become etenal? "
 
-[ata](https://paletteneka.atabook.org/)
-<br>
-if you don't like me or hate you can hide its okay to hide you dont have to harassing me like grow up bru.
+   [ata](https://paletteneka.atabook.org/) [memories](https://lovelymemories.straw.page)
+
+</p>
