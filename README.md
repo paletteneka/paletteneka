@@ -17,7 +17,8 @@ ________
  #### my dear friend !!
 ### <br>  [banny](https://github.com/bannysuperman) . [ghoul](https://github.com/JAWS0DEATH) . [fei](https://github.com/mmarshmary) . [chii](https://github.com/chii1-chips) . [haru](https://toyarui) . [ethe/yui](https://github.com/KOUFUKUKEI) . [seb](https://github.com/sebkrta) . [chris](https://github.com/wes-borland) . [haruki](https://github.com/harukiiame) not in order i luv u!!!
 
-<img src="https://files.catbox.moe/ws80iw.jpg">
+
+<img src="https://files.catbox.moe/5pldc4.gif"><img src="https://files.catbox.moe/fw5unr.png"><img src="https://files.catbox.moe/fyf1zk.gif"><img src="https://files.catbox.moe/43rm0v.png"> <img src="https://files.catbox.moe/u67iev.png"> 
 
 <img src="https://files.catbox.moe/5wvdyl.png" alt="border" width="1000" align="center">
  
