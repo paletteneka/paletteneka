@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/5wvdyl.png" alt="border" width="1000" align="center">
  
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=paletteneka&label=color+of+palette&color=gray&style=flat-square" alt="rennichalatte" /> </p>
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=paletteneka&label=color+of+palette&color=gray&style=flat-square" alt="renn" /> </p>
  
 <p align="center">
 <a href="https://rentry.co/our-stage"><img src="https://files.catbox.moe/nac3t3.png" width="150” height="auto"
